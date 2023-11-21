@@ -3,7 +3,7 @@ I am a poetry MFA candidate and Iowa Arts fellow at the [Iowa Writers' Workshop]
 ## Recently
 
 - Earned my A.B. in physics (cum laude, PBK 48) and S.M. in computational science and engineering at Harvard
-- Returned to the [Summer Science Program in Astrophysics](https://summerscience.org/) as a teaching assistant and residential mentor 
+- Returned to the [Summer Science Program in Astrophysics](https://summerscience.org/) in Las Cruces, NM as a teaching assistant and residential mentor 
 - Worked on [Evita](https://americanrepertorytheater.org/shows-events/evita/) at the American Repertory Theater
 
 ## Contact
