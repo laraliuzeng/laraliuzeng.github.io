@@ -1,5 +1,3 @@
-# 
-
 I am a poetry MFA candidate and Iowa Arts fellow at the [Iowa Writers' Workshop](https://writersworkshop.uiowa.edu/). I studied poetry, theater, computation, and physics at Harvard. 
 
 ## Recently
