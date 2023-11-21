@@ -6,7 +6,8 @@ I am a poetry MFA candidate and Iowa Arts fellow at the [Iowa Writers' Workshop]
 - Returned to the [Summer Science Program in Astrophysics](https://summerscience.org/) in Las Cruces, NM as a teaching assistant and residential mentor 
 - Worked on [Evita](https://americanrepertorytheater.org/shows-events/evita/) at the American Repertory Theater
 
-## Contact
+## Contact 😸
 
-lara hyphen zeng at uiowa dot edu
+📧 lara hyphen zeng at uiowa dot edu
+📫 102 Dey House 
 
