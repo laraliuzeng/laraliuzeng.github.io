@@ -10,5 +10,5 @@ I am a poetry MFA candidate and Iowa Arts fellow at the [Iowa Writers' Workshop]
 
 ## Contact
 
-lara-zeng @ uiowa 
+lara hyphen zeng at uiowa dot edu
 
