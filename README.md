@@ -14,3 +14,4 @@ I am a poetry MFA candidate and Iowa Arts fellow at the [Iowa Writers' Workshop]
 
 ℹ️ [anonymous feedback form](https://docs.google.com/forms/d/e/1FAIpQLSdN10OACgCCpIgUrHzg7hxg-5atJydb2-SAd754CIg4PHItxQ/viewform?usp=sf_link)
 
+she/her
